@@ -1,6 +1,6 @@
 # The Best of Youtube
 ## 1) Worlds Got Talent Genius Extraordinary Kids in Math, Piano and Periodic Table
-[![Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video](https://github.com/ClickTube/ClickTube/blob/master/ExtraOrdinaryKids.jpeg)](https://www.youtube.com/watch?v=RbNox4BJwl0 "Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video")
+[![Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video](https://github.com/ClickTube/ClickTube/blob/master/ExtraOrdinaryKids_ClickTube.jpg)](https://www.youtube.com/watch?v=RbNox4BJwl0 "Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video")
 
 1) A 5-year-old math genius;
 2) A 7-year-old boy playing the piano;
