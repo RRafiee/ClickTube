@@ -1,6 +1,6 @@
 # The Best of Youtube
 ## 1) Worlds Got Talent Genius Extraordinary Kids in Math, Piano and Periodic Table
-[![Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video](https://github.com/ClickTube/ClickTube/blob/master/ExtraOrdinaryKids_ClickTube.jpg)](https://www.youtube.com/watch?v=RbNox4BJwl0 "Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video")
+[![Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video](https://github.com/ClickTube/ClickTube/blob/master/ExtraOrdinaryKids_ClickTube.JPG)](https://www.youtube.com/watch?v=RbNox4BJwl0 "Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video")
 
 1) A 5-year-old math genius;
 2) A 7-year-old boy playing the piano;
@@ -11,7 +11,7 @@
 # -------------------------------------------------------------
 
 ## 2) Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed
-[![Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed](https://github.com/ClickTube/ClickTube/blob/master/TwinSisters.jpg)](https://www.youtube.com/watch?v=s_rCyqVqKlk "Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed")
+[![Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed](https://github.com/ClickTube/ClickTube/blob/master/TwinSisters_ClickTube.JPG)](https://www.youtube.com/watch?v=s_rCyqVqKlk "Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed")
 
 Anna and Lucy identical twins share everything from a house, a bed and even a boyfriend.
 
