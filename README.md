@@ -7,5 +7,6 @@
 3) A 4-year-old boy from North Carolina can identify all 45 presidents by picture and recite biographical facts about each of them! He said: "My brother doesn't share his girlfriend!"
 4) Adorable 3-year-old Periodic Table Expert Brielle
 
-#------------------------------------------------------------------------
+
+# ------------------------------------------------------------------------
 
