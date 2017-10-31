@@ -8,7 +8,7 @@
 4) Adorable 3-year-old Periodic Table Expert Brielle.
 
 
-# -----------------------------------------------------------------------
+# -------------------------------------------------------------
 
 ## 2) Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed
 [![Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed](https://github.com/ClickTube/ClickTube/blob/master/TwinSisters.jpg)](https://www.youtube.com/watch?v=s_rCyqVqKlk "Inseparable Twin Sisters Share Everything Even a Boyfriend and Bed")
@@ -21,4 +21,4 @@ Australian-born Anna and Lucy DeCinque might just be the most 'identical' identi
 he sisters, who were born just one minute apart, share everything -- a Facebook account, a job, a house, a car, and even a boyfriend. They have always been inseparable, going to the same nursery, primary and secondary schools. They also enrolled in the same beauty course in college. And as if being naturally identical wasn't enough, they've actually spent over $200,000 on plastic surgery just to look even more like each other.
 
 
-# -----------------------------------------------------------------------
+# -------------------------------------------------------------
