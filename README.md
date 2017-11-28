@@ -38,4 +38,6 @@ Luis Fonsi - Despacito ft. Daddy Yankee & Justin Bieber (SING OFF vs. Pixie Lott
 
 # -------------------------------------------------------------
 
+## 4) Top 7 Instrumental Covers of Despacito ♫ Luis Fonsi, Daddy Yankee ft. Justin Bieber ♫ Violin ...
+[![Top 7 Instrumental Covers of Despacito ♫ Luis Fonsi, Daddy Yankee ft. Justin Bieber ♫ Violin](https://github.com/ClickTube/ClickTube/blob/master/Despacito_ClickTube.JPG?raw=true)](https://www.youtube.com/watch?v=wNZBioppFkI "Top 7 Instrumental Covers of Despacito ♫ Luis Fonsi, Daddy Yankee ft. Justin Bieber ♫ Violin ...")
 
