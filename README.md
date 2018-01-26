@@ -2,11 +2,27 @@
 ## 1) Worlds Got Talent Genius Extraordinary Kids in Math, Piano and Periodic Table
 [![Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video](https://github.com/ClickTube/ClickTube/blob/master/ExtraOrdinaryKids_ClickTube.JPG?raw=true)](https://www.youtube.com/watch?v=RbNox4BJwl0 "Worlds Got Talent Genius Kids in Math, Piano, Periodic Table | Full Video")
 
+Hope you enjoy this video which is about adorable extraordinary kids!
+
+Worlds Got Talent Genius Extraordinary Kids in Math, Piano and Periodic Table
+
+Check out these four amazing talent kids around the world. Who's your favourite? Let us know in the comments below please.
+
+
 1) A 5-year-old math genius;
 2) A 7-year-old boy playing the piano;
 3) A 4-year-old boy from North Carolina can identify all 45 presidents by picture and recite biographical facts about each of them! He said: "My brother doesn't share his girlfriend!";
 4) Adorable 3-year-old Periodic Table Expert Brielle.
 
+YOUTUBE: www.youtube.com/clicktube
+FACEBOOK: www.facebook.com/ClickEnTech
+
+Please share this video and subscribe the channel for more videos.
+
+---------------------------------------------------------------------------------------------
+This video includes, but not limited to, the following topics:
+ Got Talent, Greatest kid in the world, Most talented boy, Genius kids ever, Kids Got Talent, Adorable 3-Year-Old Girl, America's Got Talent
+Got Talent Global, Top Kids, Best Kids
 
 # -------------------------------------------------------------
 
